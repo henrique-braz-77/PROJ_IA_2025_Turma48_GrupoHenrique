@@ -1,0 +1,1 @@
+# PROJ_IA_2025_Turma48_GrupoHenrique
